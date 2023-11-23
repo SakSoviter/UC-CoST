@@ -1,1 +1,2 @@
 # UC-CoST
+![photo_2023-11-17_09-53-22](https://github.com/SakSoviter/UC-CoST/assets/151852146/624bffd7-fed9-424a-8b59-daa11774ecae)
